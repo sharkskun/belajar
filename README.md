@@ -1,0 +1,2 @@
+# belajar
+aku suka muthe
